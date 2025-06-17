@@ -1,4 +1,12 @@
-## Hi there 👋
+## (。・ω・。) Gewb !! —— He/She
+<p align="center">
+  <img width="1000" height="60" src="https://github.com/user-attachments/assets/da51c4dc-f9a9-4436-b4e8-012346833b81">
+</p>
+<p align="center">
+  <img width="700" height="300" src="https://github.com/user-attachments/assets/5db0dfde-d297-484a-98c4-fb9bd93fc9d8">
+</p>
+
+
 
 <!--
 **kewbybub/kewbybub** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
