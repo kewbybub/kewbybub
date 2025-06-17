@@ -1,4 +1,4 @@
-## (。・ω・。) Gewb !! —— He/She
+## (。・ω・。) Gewb !! —— An absolute loser 💔💔
 <p align="center">
   <img width="1000" height="60" src="https://github.com/user-attachments/assets/da51c4dc-f9a9-4436-b4e8-012346833b81">
 </p>
